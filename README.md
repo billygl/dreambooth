@@ -1,0 +1,2 @@
+- https://dreambooth.github.io/
+- https://www.elladodelmal.com/2022/11/como-hacer-retratos-de-personas-con-ia.html
